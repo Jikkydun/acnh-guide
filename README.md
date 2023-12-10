@@ -1,7 +1,7 @@
 # ACNH - Guide And Tips
 
 
-## Simple Manners Guide
+## Basic Information
 
 [การทักแชทสอบถาม](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1806702146417349/)
 
