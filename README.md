@@ -21,6 +21,8 @@
 
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : ทริคฟาร์มหิน](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1803974760023421/)
 
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : การย้ายหินด้วย Mannequin Technique สำหรับมือใหม่](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/962410430846529/)
+
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : วิธีเพาะต้นกุหลาบทองคำ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1758519901235574/)
 
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : วิธีขอพรดาวตก](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1794244180996479/)
