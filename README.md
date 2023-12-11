@@ -9,7 +9,7 @@
 
 [วิธีหาไกด์ที่ปักหมุดหรือส่วนแนะนำ/Featured](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1753253595095538/)
 
-[วิธีสำรองและกู้คืนบันทึกข้อมูลเกาะ "แบบถูกวิธี" - 𝗔𝗖𝗡𝗛 𝗢𝗻𝗹𝘆*](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1745006095920288/)
+[วิธีสำรองและกู้คืนบันทึกข้อมูลเกาะ สำหรับACNH](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1745006095920288/)
 
 [ขั้นตอนการเป็น Best Friend](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1704537109967187/)
 
