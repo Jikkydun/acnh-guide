@@ -63,7 +63,7 @@
 
 ## Guide And Tips
 
-[𝗧𝗶𝗺𝗲 𝗧𝗿𝗮𝘃𝗲𝗹 (TT) : การข้ามเวลา](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1746983325722565/)
+[𝗧𝗶𝗺𝗲 𝗧𝗿𝗮𝘃𝗲𝗹 **(TT)** : การข้ามเวลา](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1746983325722565/)
 
 [𝗠𝘆𝘀𝘁𝗲𝗿𝘆 𝗜𝘀𝗹𝗮𝗻𝗱 : เกาะร้างลึกลับ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1698817033872528/)
 
