@@ -37,6 +37,8 @@
 
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : 𝗔𝗺𝗶𝗶𝗯𝗼 𝗙𝗶𝗴𝘂𝗿𝗲𝘀 / 𝗔𝗺𝗶𝗶𝗯𝗼 𝗖𝗮𝗿𝗱](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1762861500801414/)
 
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : การจับของ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/975249846229254/)
+
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : ของตกแต่งจากภาค pocket camp 1](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/970151963405709/)
 
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : ของตกแต่งจากภาค pocket camp 2](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1778334512587446/)
