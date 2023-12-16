@@ -34,10 +34,10 @@
 ## Mini Guide
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : 𝗙𝗼𝗿 𝗯𝗲𝗴𝗶𝗻𝗻𝗲𝗿  : ความรู้ทั่วไปสำหรับมือใหม่](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243633496534/)
 
-[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : คำศัพท์ที่ใช้บ่อย1 ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243706829860/)
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : คำศัพท์ที่ใช้บ่อย1 ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243706829860/)  
 NMT/Bells/DDC/ท่อ/เกาะร้าง，กัปปะ/Nook stop/ABD/Nook Miles/Achievements/Turnip
 
-[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : คำศัพท์ที่ใช้บ่อย2](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243703496527/)
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : คำศัพท์ที่ใช้บ่อย2](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243703496527/)  
 Villagers/NPCs/เกาะฮาร์ป/เปิด-ปิดเกท/จับของ/TT,Time Travel/DA Code/เตะกลับ/ส่งกลับ/DIYs/Craft
 
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : Turnips/หุ้น/หัวไชเท้า คืออะไร](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769263066827924/)
