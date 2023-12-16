@@ -24,11 +24,43 @@
 
 [ขั้นตอนการเป็น Best Friend🫂](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1704537109967187/)
 
+[ราคากลางในการซื้อขายวัตถุดิบต่างๆ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243650163199/)
+
+[รีเกาะ/สร้างอีกไอดี(ตัวสำรอง)](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769848866769344/)
+
+[เอาตัวสำรองออก](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1770014523419445/)
+
 
 ## Mini Guide
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : 𝗙𝗼𝗿 𝗯𝗲𝗴𝗶𝗻𝗻𝗲𝗿  : ความรู้ทั่วไปสำหรับมือใหม่](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243633496534/)
 
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : คำศัพท์ที่ใช้บ่อย1 ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243706829860/)
+NMT/Bells/DDC/ท่อ/เกาะร้าง，กัปปะ/Nook stop/ABD/Nook Miles/Achievements/Turnip
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : คำศัพท์ที่ใช้บ่อย2](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243703496527/)
+Villagers/NPCs/เกาะฮาร์ป/เปิด-ปิดเกท/จับของ/TT,Time Travel/DA Code/เตะกลับ/ส่งกลับ/DIYs/Craft
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : Turnips/หุ้น/หัวไชเท้า คืออะไร](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769263066827924/)
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : วิธีปลดล็อก DIY บันได](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243666829864/)
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : วิธีเพิ่มช่องกระเป๋าพกพาของเรา](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243670163197/)
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : วิธีขยายช่องคลังเก็บของ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1834763153611248/)
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : บ้านคับแคบไปไหม... วิธีอัพเกรดขยายและเพิ่มห้องในบ้าน](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1834763150277915/)
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : เงื่อนไขการเกิดหมัดดึ๋งๆ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1817301738690723/)
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : เทคนิคเพิ่มเรทเกาะให้ได้ 3 ดาว](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243726829858/)
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : เทคนิคเพิ่มเรทเกาะให้ได้ 5 ดาว](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243676829863/)
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : วิธีปลดล็อกสูตรทำอาหาร/อยากเป็นเชฟต้องทำยังไงบ้างง](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1827873077633589/)
+
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : มารู้จักอุปกรณ์ที่พวกเราใช้กัน](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1689385971482301/)
+
+[𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : วิธีปลดล็อกอุปกรณ์ทอง](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1769243673496530/)
 
 [𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : ทริคฟาร์มหิน](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1803974760023421/)
 
