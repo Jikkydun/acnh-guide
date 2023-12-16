@@ -1,7 +1,7 @@
 # ACNH - Guide and Tips
 
 ## :bangbang:New update:bangbang:
-[🚨🆕𝗕𝘂𝗴-𝗢𝗳𝗳 𝗘𝘃𝗲𝗻𝘁 𝗢𝗻 𝗗𝗲𝗰𝗲𝗺𝗯𝗲𝗿 (𝗦𝗼𝘂𝘁𝗵𝗲𝗿𝗻 𝗛𝗲𝗺𝗶𝘀𝗽𝗵𝗲𝗿𝗲) : กิจกรรมแข่งขันจับแมลง](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1853185985102298/) (เกาะใต้)
+[🚨🆕𝗕𝘂𝗴-𝗢𝗳𝗳 𝗘𝘃𝗲𝗻𝘁 𝗢𝗻 𝗗𝗲𝗰𝗲𝗺𝗯𝗲𝗿 (𝗦𝗼𝘂𝘁𝗵𝗲𝗿𝗻 𝗛𝗲𝗺𝗶𝘀𝗽𝗵𝗲𝗿𝗲) : กิจกรรมแข่งขันจับแมลง](https://m.facebook.com/groups/AnixNewHorizonsTH/permalink/1853185985102298/) (เกาะใต้)
 
 [https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1853185985102298/](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1853185985102298/)
 
