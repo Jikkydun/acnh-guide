@@ -1,6 +1,6 @@
 # ACNH - Guide and Tips
 
-## ‼️New update‼️
+## :bangbang: New update :bangbang:
 [⚠️𝗕𝘂𝗴-𝗢𝗳𝗳 𝗘𝘃𝗲𝗻𝘁 𝗢𝗻 𝗗𝗲𝗰𝗲𝗺𝗯𝗲𝗿 (𝗦𝗼𝘂𝘁𝗵𝗲𝗿𝗻 𝗛𝗲𝗺𝗶𝘀𝗽𝗵𝗲𝗿𝗲) : กิจกรรมแข่งขันจับแมลง](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1853185985102298/) (เกาะใต้)
 
 [⚠️𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : 𝗕𝘂𝗶𝗹𝗱 𝗣𝗲𝗿𝗳𝗲𝗰𝘁 𝗦𝗻𝗼𝘄𝗯𝗼𝘆 : วิธีสร้างตุ๊กตาหิมะที่สมบูรณ์แบบ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1849190608835169)
