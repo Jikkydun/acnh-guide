@@ -1,11 +1,15 @@
 # ACNH - Guide and Tips
 
 ## :bangbang:Featured Event:bangbang:
+[🚨🆕 𝗧𝗼𝘆 𝗗𝗮𝘆 𝗘𝘃𝗲𝗻𝘁 : เทศกาลของขวัญหรรษา](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1857046444716252/)
+
+[🚨🆕𝗗𝗲𝗰𝗲𝗺𝗯𝗲𝗿 **22nd-31st** 𝗦𝗲𝗮𝘀𝗼𝗻𝗮𝗹 𝗜𝘁𝗲𝗺𝘀 𝗼𝗻 🦝 𝗡𝗼𝗼𝗸 𝗦𝗵𝗼𝗽𝗽𝗶𝗻𝗴](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1856390361448527/)
+
 [🚨🆕𝗕𝘂𝗴-𝗢𝗳𝗳 𝗘𝘃𝗲𝗻𝘁 𝗢𝗻 𝗗𝗲𝗰𝗲𝗺𝗯𝗲𝗿 (𝗦𝗼𝘂𝘁𝗵𝗲𝗿𝗻 𝗛𝗲𝗺𝗶𝘀𝗽𝗵𝗲𝗿𝗲) : กิจกรรมแข่งขันจับแมลง](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1853185985102298/) (เกาะใต้)
 
 [🚨🆕𝗠𝗶𝗻𝗶 𝗚𝘂𝗶𝗱𝗲 : 𝗕𝘂𝗶𝗹𝗱 𝗣𝗲𝗿𝗳𝗲𝗰𝘁 𝗦𝗻𝗼𝘄𝗯𝗼𝘆 : วิธีสร้างตุ๊กตาหิมะที่สมบูรณ์แบบ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1849190608835169)
 
-[🚨🆕𝗗𝗲𝗰𝗲𝗺𝗯𝗲𝗿 𝗦𝗲𝗮𝘀𝗼𝗻𝗮𝗹 𝗜𝘁𝗲𝗺𝘀 𝗼𝗻 🦝 𝗡𝗼𝗼𝗸 𝗦𝗵𝗼𝗽𝗽𝗶𝗻𝗴 ไอเทมเทศกาลในร้านนุ๊ก](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1852584868495743/)
+[🚨🆕𝗗𝗲𝗰𝗲𝗺𝗯𝗲𝗿 **15th-22nd** 𝗦𝗲𝗮𝘀𝗼𝗻𝗮𝗹 𝗜𝘁𝗲𝗺𝘀 𝗼𝗻 🦝 𝗡𝗼𝗼𝗸 𝗦𝗵𝗼𝗽𝗽𝗶𝗻𝗴 ไอเทมเทศกาลในร้านนุ๊ก](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1852584868495743/)
 
 [🚨🆕𝘼𝙣𝙞𝙢𝙖𝙡 𝘾𝙧𝙤𝙨𝙨𝙞𝙣𝙜: 𝙉𝙚𝙬 𝙃𝙤𝙧𝙞𝙯𝙤𝙣𝙨 𝘾𝙖𝙧𝙙 𝙂𝙪𝙢𝙢𝙮 𝙎𝙚𝙡𝙚𝙘𝙩𝙞𝙤𝙣 : ป้ายยาขนมเยลลี่หนุบหนับ](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1852695405151356/)
 
@@ -339,6 +343,10 @@ Villagers/NPCs/เกาะฮาร์ป/เปิด-ปิดเกท/จ�
 [Toy Day : เทศกาลของขวัญหรรษา](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1639489696471929/)
 
 [New Year's Eve - Countdown : เทศกาลส่งท้ายปีเก่า](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1644613062626259/)
+
+##𝗦𝗲𝗮𝘀𝗼𝗻𝗮𝗹 𝗜𝘁𝗲𝗺𝘀 𝗼𝗻 🦝 𝗡𝗼𝗼𝗸 𝗦𝗵𝗼𝗽𝗽𝗶𝗻𝗴
+
+...Coming soon...
 
 Source : #Animal Crossing: New Horizons Thailand
 
