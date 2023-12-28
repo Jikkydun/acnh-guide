@@ -1,6 +1,9 @@
 # ACNH - Guide and Tips
 
 ## :bangbang:Featured Event:bangbang:
+
+[🚨🆕 Apple watch : อิสเบลบอกเวลาแอปเปิ้ลวอช](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1860635791023984/)
+
 [🚨🆕 𝗧𝗼𝘆 𝗗𝗮𝘆 𝗘𝘃𝗲𝗻𝘁 : เทศกาลของขวัญหรรษา](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1857046444716252/)
 
 [🚨🆕𝗗𝗲𝗰𝗲𝗺𝗯𝗲𝗿 **22nd-31st** 𝗦𝗲𝗮𝘀𝗼𝗻𝗮𝗹 𝗜𝘁𝗲𝗺𝘀 𝗼𝗻 🦝 𝗡𝗼𝗼𝗸 𝗦𝗵𝗼𝗽𝗽𝗶𝗻𝗴](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1856390361448527/)
