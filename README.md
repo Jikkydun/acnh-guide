@@ -2,7 +2,7 @@
 
 ## :bangbang:Featured Event:bangbang:
 
-[🚨🆕 Apple watch : อิสเบลบอกเวลาแอปเปิ้ลวอช](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1860635791023984/)
+[🚨🆕 **Apple watch** : อิสเบลบอกเวลาแอปเปิ้ลวอช](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1860635791023984/)
 
 [🚨🆕 𝗧𝗼𝘆 𝗗𝗮𝘆 𝗘𝘃𝗲𝗻𝘁 : เทศกาลของขวัญหรรษา](https://www.facebook.com/groups/AnixNewHorizonsTH/permalink/1857046444716252/)
 
